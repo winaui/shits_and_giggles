@@ -1,1 +1,1 @@
-It's useless but it's fun
+It's useless but it's fun.
